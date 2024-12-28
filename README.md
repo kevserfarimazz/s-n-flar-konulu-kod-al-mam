@@ -1,0 +1,1 @@
+# s-n-flar-konulu-kod-al-mam
